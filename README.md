@@ -1,0 +1,1 @@
+# RADID-PALINDO-ADLAN_09011282328054_SK3C_Sistem-Operasi_pratikum-5
